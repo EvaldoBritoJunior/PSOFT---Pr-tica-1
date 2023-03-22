@@ -1,1 +1,1 @@
-# PSOFT---Pr-tica-1
+# PSOFT---Pratica-1
